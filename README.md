@@ -1,6 +1,6 @@
 Uliana Moiseeva 19 y.o.
-Love programming on html css, lerning javascript(fremworks: vue, react), python.
-No job, I study in college
+Love programming on html css, lerning javascript(fremworks:  react) SQL, C++ .
+No job, I study in college open college
 Messenge me:
-Vk: https://vk.com/hooligan_uliana
-Telegram: https://t.me/Hooliganka_Ulianka
+Vk: https://vk.com/shuma02
+Telegram: @Shuma
